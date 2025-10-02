@@ -1,1 +1,0 @@
-# IA-que-diferencia-gato-ou-cachorro
